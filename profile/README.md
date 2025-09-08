@@ -1,4 +1,4 @@
-## Welcome to the Reflective CLoud 👋
+## Welcome to the Reflective Cloud 👋
 
 
 
